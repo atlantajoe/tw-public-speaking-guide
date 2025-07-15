@@ -7,7 +7,7 @@ Date: July, 2025
 License:  License: CC BY-NC-SA 4.0
 ---
 # How to Prepare for a Public Speaking Engagement
-By Joe Belli | July 2025 | [**Link to Substack Article**](https://joebelli.substack.com/p/how-to-prepare-for-a-public-speaking)
+By Joe Belli | July 2025 | [**Link to LinkedIn Article**](https://www.linkedin.com/pulse/how-prepare-public-speaking-engagement-joe-belli-1isdc/?trackingId=c6LXZq75TBSngsmTofbZeA%3D%3D)
 
 ---
 

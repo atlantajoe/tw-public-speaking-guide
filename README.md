@@ -28,6 +28,5 @@ I'm actively exploring opportunities in technical writing and related fields. Ad
 - [**Substack**](https://joebelli.substack.com/)
 - [**LinkedIn**](https://www.linkedin.com/in/joe-belli-472290370/)
 - [**GitHub Portfolio**](https://github.com/atlantajoe)
-- [**Bluesky**](https://bsky.app/profile/atlantajoe.bsky.social)
 
 Thanks for visiting.
